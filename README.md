@@ -1,2 +1,8 @@
-# Tarrit-Blog
-Tarrit Blog – SEO articles, fashion insights, and brand updates for better visibility and rankings.
+# Tarrit Blog
+
+## Official Website
+https://www.tarrit.in/
+
+## Blog Home Page
+https://www.tarrit.in/blogs/tarrit-journal
+
