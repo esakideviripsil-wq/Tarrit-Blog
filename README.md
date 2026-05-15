@@ -65,3 +65,7 @@ https://www.tarrit.in/blogs/tarrit-journal/premium-made-to-measure-shirts-for-me
 - tailored formal shirts for men
 - personalized men’s shirts online
 - perfect fit office shirts for men
+
+  ### Blog Preview
+
+![Made to Measure Shirt](made-to-measure-shirt-tarrit.jpg)
