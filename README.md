@@ -205,5 +205,5 @@ https://www.tarrit.in/blogs/tarrit-journal/solid-shirts-for-men-egyptian-giza-co
 
  ### Blog Preview
 
-![Tarrit Solid Shirt](images/shirt.webp)
+![Tarrit Solid Shirt](shirt.webp)
 
