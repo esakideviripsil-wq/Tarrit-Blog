@@ -71,7 +71,7 @@ https://www.tarrit.in/blogs/tarrit-journal/premium-made-to-measure-shirts-for-me
 ![Made to Measure Shirt](made-to-measure-shirt-tarrit.jpg)
 
 
-2.# Solid Shirts for Men – Egyptian Giza Cotton Formal & Minimal Shirts | Tarrit Solids Collection
+**2.# Solid Shirts for Men – Egyptian Giza Cotton Formal & Minimal Shirts | Tarrit Solids Collection**
 
 Modern menswear is shifting toward timeless wardrobe essentials that combine versatility, comfort, and refined aesthetics. The Tarrit Solids Collection is designed around premium Egyptian Giza cotton, minimal styling, and structured tailoring for formal and modern wardrobes.
 
@@ -202,3 +202,8 @@ The Tarrit Solids Collection focuses on timeless menswear through premium Egypti
 
 **Read More:**
 https://www.tarrit.in/blogs/tarrit-journal/solid-shirts-for-men-egyptian-giza-cotton-formal-minimal-shirts-tarrit-solids-collection
+
+ ### Blog Preview
+
+![Tarrit Solid Shirt](images/shitrt.png)
+
