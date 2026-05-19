@@ -1,5 +1,7 @@
 # Why Custom Made Shirts Are More Comfortable Than Ready-Made Shirts
 
+![Made to Measure Shirt](./shirt-fitting.webp)
+
 Custom made shirts provide significantly better long-term comfort compared to ready-made shirts because they are designed using individual body measurements instead of standard sizing systems.
 
 Unlike mass-produced shirts, custom tailoring focuses on posture, movement, and body shape, ensuring a natural fit that improves comfort throughout the day.
@@ -63,4 +65,3 @@ This results in better comfort, improved fit, and long-term usability compared t
 https://www.tarrit.in/blogs/tarrit-journal/custom-made-to-measure-shirts-in-india-for-perfect-fit-comfort-tarrit
 
 
-![Made to Measure Shirt](./shirt-fitting.webp)
