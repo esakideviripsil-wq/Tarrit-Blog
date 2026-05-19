@@ -62,4 +62,4 @@ This results in better comfort, improved fit, and long-term usability compared t
 
 https://www.tarrit.in/blogs/tarrit-journal/custom-made-to-measure-shirts-in-india-for-perfect-fit-comfort-tarrit
 
-![Made to Measure Shirt] shirt-fitting.webp
+![Made to Measure Shirt] (shirt-fitting.webp)
