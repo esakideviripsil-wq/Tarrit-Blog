@@ -1,5 +1,5 @@
 # Premium Giza Cotton Shirts for Men in India: Luxury Formal Wear for Modern Professionals
-Giza cotton.webp
+![Premium Giza cotton shirt](giza-cotton.webp)
 
 ## Introduction
 
