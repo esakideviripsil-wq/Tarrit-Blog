@@ -1,6 +1,6 @@
 # Made to Measure Shirts in India for Men Seeking Better Fit and Long-Term Comfort | Tarrit
 
-![Tarrit Menswear](TarritMenswear-1.webp)
+![Made to Measure Shirts in India](TarritMenswear-1.webp)
 
 
 Choosing the right shirt is no longer only about color or style. Today, many professionals and modern buyers are searching for better comfort, improved fitting, and long-term wearability. This is one of the biggest reasons why demand for **made to measure shirts in India** continues to grow.
