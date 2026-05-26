@@ -1,5 +1,5 @@
 # Best Custom Wedding Shirts for Men in India 2026 | Premium Groom Shirts by Tarrit
-![Made to Measure Shirts in India](TarritMenswear-1.webp)
+![Best Custom Wedding Shirts for Men in India](best-custom-wedding-shirts-men-india-2026.jpg)
 
 Indian weddings in 2026 are becoming more style-focused, personalized, and luxury-driven than ever before. Modern grooms now prioritize comfort, premium tailoring, and elegant presentation across receptions, engagement functions, cocktail parties, and destination weddings.
 
