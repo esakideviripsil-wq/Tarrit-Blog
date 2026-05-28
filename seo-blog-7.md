@@ -188,14 +188,7 @@ A breathable tailored shirt often determines how comfortable and confident the g
 
 ---
 
-## Internal Linking Opportunities
 
-* [https://www.tarrit.in/pages/wedding](https://www.tarrit.in/pages/wedding)
-* [https://www.tarrit.in/pages/made-to-measure](https://www.tarrit.in/pages/made-to-measure)
-* [https://www.tarrit.in/collections/shirts](https://www.tarrit.in/collections/shirts)
-* [https://www.tarrit.in/collections/formal-shirts](https://www.tarrit.in/collections/formal-shirts)
-
----
 
 ## Frequently Asked Questions
 
