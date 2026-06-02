@@ -1,6 +1,5 @@
 # Why Vertical Line Shirts for Men Remain a Timeless Style Choice in 2026
-![Vertical Line Shirts for Men](vertical-line-shirts-for-men.webp)
-
+![Vertical Line Shirts for Men](./vertical%20line%20shirts%20for%20men.webp)
 Modern men's fashion continues to evolve, but some wardrobe essentials never lose their relevance. One of the strongest examples is the vertical striped shirt. From professional workplaces to smart casual gatherings, vertical line shirts for men remain a preferred choice because they combine versatility, sophistication, and everyday wearability.
 
 ## The Enduring Appeal of Vertical Stripes
